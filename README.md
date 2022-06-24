@@ -1,4 +1,4 @@
-💫Noob at everything. Currently trying to learn C++. I'm also interested in assembly but haven't gotten to that yet.💫 
+💫bada bing bada boom💫 
 
 <!---
 h-yi/h-yi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
